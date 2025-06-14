@@ -7,6 +7,9 @@
 
   <br>
   
+![1000019525](https://github.com/user-attachments/assets/3eb89ccf-24bc-4245-9ecd-77204797e45e)
+
+
 ![1000019505](https://github.com/user-attachments/assets/f77ac66d-7b20-4f49-9c8f-96ef98c7b083)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=s12uenf3xuez4eu5dy28pfg15&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=s12uenf3xuez4eu5dy28pfg15&redirect=true)
