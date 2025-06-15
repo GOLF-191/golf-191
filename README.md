@@ -7,7 +7,6 @@
 
   <br>
   
-![1000019525](https://github.com/user-attachments/assets/3eb89ccf-24bc-4245-9ecd-77204797e45e)
 
 
 ![1000019505](https://github.com/user-attachments/assets/f77ac66d-7b20-4f49-9c8f-96ef98c7b083)
