@@ -13,9 +13,9 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=s12uenf3xuez4eu5dy28pfg15&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=s12uenf3xuez4eu5dy28pfg15&redirect=true)
       
-[![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=s12uenf3xuez4eu5dy28pfg15&count=3)](https://open.spotify.com/user/s12uenf3xuez4eu5dy28pfg15)
-
 ![1000019675](https://github.com/user-attachments/assets/8435dcaf-009c-49c5-9b60-9318061b17d2)
+
+### **i stole this video from @hat3rxl on tt**
 
 <video src="https://github.com/user-attachments/assets/ec187765-9c40-474e-bbd3-2f56036fcf0b" />
 
