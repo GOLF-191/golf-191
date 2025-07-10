@@ -12,7 +12,7 @@
 ![1000019505](https://github.com/user-attachments/assets/f77ac66d-7b20-4f49-9c8f-96ef98c7b083)
 
 
-      
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=s12uenf3xuez4eu5dy28pfg15&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=s12uenf3xuez4eu5dy28pfg15&redirect=true)
 ![1000019675](https://github.com/user-attachments/assets/8435dcaf-009c-49c5-9b60-9318061b17d2)
 
 ### **i stole this video from @hat3rxl on tt**
