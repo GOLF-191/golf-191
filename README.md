@@ -9,3 +9,4 @@
 <a href="https://www.last.fm/user/piggeonna"><img src="https://lastfm-recently-played.vercel.app/api?user=piggeonna&footer_style=compact_stats&count=1&width=600&loved=true&header_style=normal&bg_color=396060" alt="boiii ts music tast so peak" /></a>
 
 wip lalalala
+also formated for pc users sorrz moblie people
