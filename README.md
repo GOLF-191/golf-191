@@ -4,7 +4,7 @@
 
  <img src="https://komarev.com/ghpvc/?username=piggeonna&color=396060&amp;label=friends+maybe:" align="center" alt="profile views" title="hello daddy pim hello daddy pim hello daddy pim!"/></a>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bytesized&size=50&pause=1000&color=B0CDCB&center=true&vCenter=true&width=1200&height=60&lines=At+your+bark+and+collar;Just+forget+I'm+someone's+daughter;I+can't+ever+fuck+it+up+if+I+don't+even+bother." alt="Typing SVG" title="you'll find my smoking body hung in wires overhead!" /></a>
+<a href="https://www.youtube.com/watch?v=YfXpNIQbdjo"><img src="https://readme-typing-svg.demolab.com?font=Bytesized&size=50&duration=4000&pause=1000&color=B0CDCB&center=true&vCenter=true&width=1200&height=60&lines=At+your+bark+and+collar;Just+forget+I'm+someone's+daughter;I+can't+ever+fuck+it+up+if+I+don't+even+bother." alt="katamari damnacy" title="you'll find my smoking body hung in wires overhead!" /></a>
 
 <a href="https://www.last.fm/user/piggeonna"><img src="https://lastfm-recently-played.vercel.app/api?user=piggeonna&show_user=header&footer_style=compact_stats&count=1&width=600&loved=true&header_style=normal&bg_color=396060" alt="last.fm player yaya" title="boiii ts music taste so peak"/></a>
 
