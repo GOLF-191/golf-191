@@ -24,9 +24,9 @@
 
 <a href="https://www.youtube.com/watch?v=BmmMfZR8C80"><img src="https://files.catbox.moe/zsc712.png" width="60%" height="70%" align="center" alt="femt" title="just forget im someone's daughter">
 
-ts super awesome gh was like based off of [ts person's one](https://github.com/Vexuliii) its hella good and well done yeahh
+ts super awesome gh was like based off of [ts person's one](https://github.com/Vexuliii) its hella good and well done yeahh all creds to them heh
 
- <details>
+<details>
                                               <summary> <td>$${\color{#d3d8c9}\verb|graphics yayy|}$$</td></summary>
 <br>
     <kbd>$\color{#ffffeb}{\textsf{lawwwts of colours and flashing stuff}}$</kbd>
