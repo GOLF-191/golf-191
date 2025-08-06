@@ -2,7 +2,7 @@
 	
 <a href="https://www.youtube.com/watch?v=Ja2J2WkmjNg"><img src="https://files.catbox.moe/dc63ds.gif" alt="femtanyl header heh" width="700" title="FEMTANTYL MENTIONED" /></a>
 
- <img src="https://komarev.com/ghpvc/?username=piggeonna&color=396060&amp;label=friends+maybe:" align="center" alt="profile views" title="hello daddy pim hello daddy pim hello daddy pim!"/></a>
+<a href="https://www.youtube.com/watch?v=qLFY1npl1z0"><img src="https://komarev.com/ghpvc/?username=piggeonna&color=396060&amp;label=friends+maybe:" align="center" alt="profile views" title="hello daddy pim hello daddy pim hello daddy pim!"/></a>
 
 <a href="https://www.youtube.com/watch?v=YfXpNIQbdjo"><img src="https://readme-typing-svg.demolab.com?font=Bytesized&size=50&duration=4000&pause=1000&color=B0CDCB&center=true&vCenter=true&width=1200&height=60&lines=At+your+bark+and+collar;Just+forget+I'm+someone's+daughter;I+can't+ever+fuck+it+up+if+I+don't+even+bother." alt="katamari damnacy" title="you'll find my smoking body hung in wires overhead!" /></a>
 
