@@ -646,8 +646,10 @@ ts super awesome gh was like based off of [ts person's one](https://github.com/V
 
   <details>
     <summary> <td>$${\color{#c1c9c1}\verb|blinkies|}$$</td></summary>
-
-mannn fuck this coding in html shit those stamps took THREE FUCKING DAYS
+	<a href="https://www.youtube.com/watch?v=MWdqIZvkv6Y"><img src="https://files.catbox.moe/orq2g0.gif" alt="red divider" title="ik its a blinkie but ion care lawll"></a>
+	  
+<br>
+	
 
   </details>
 
