@@ -10,7 +10,7 @@
 
 <hr>
 
-<a href="https://piggeonna.atabook.org/"><img src="https://files.catbox.moe/oms1zq.png" align="center" width="22%" height="50" alt="atabook" title="sandwitches"> </a>
+<a href="https://piggeonna.atabook.org/"><img src="https://files.catbox.moe/oms1zq.png" align="center" width="24%" height="50" alt="atabook" title="sandwitches"> </a>
 
 
 <a href="https://rentry.co/dont-tap-da-glass"><img src="https://files.catbox.moe/bqxcdw.png" align="center" width="20%" height="50" alt="rentry" title="golden"></a>
@@ -647,7 +647,8 @@ ts super awesome gh was like based off of [ts person's one](https://github.com/V
   <details>
     <summary> <td>$${\color{#c1c9c1}\verb|blinkies|}$$</td></summary>
 	<a href="https://www.youtube.com/watch?v=MWdqIZvkv6Y"><img src="https://files.catbox.moe/orq2g0.gif" alt="red divider" title="ik its a blinkie but ion care lawll"></a>
-	  
+
+im too fawking tired to finish ts
 <br>
 	
 
