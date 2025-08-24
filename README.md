@@ -661,3 +661,6 @@ im too fawking tired to finish ts
   <details>
     <summary> <td>$${\color{#6b7981}\verb|userbox things idk what theyre called kekw|}$$</td></summary>
   </details>
+
+</details>
+<a href="https://www.youtube.com/watch?v=vRvWpR4clNQ"><img src="https://files.catbox.moe/tn1ky7.gif" alt="ooooh you wanna sign my straw and ata ooooh" width="500" title="u kinda remind me of my bimmer..." /></a>
