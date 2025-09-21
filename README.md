@@ -21,6 +21,8 @@
 
 <a href="https://pronouns.cc/@piggeonna"><img src="https://files.catbox.moe/653cia.png" align="center" width="40%" height="50" alt="pronouns" title="fish"></a>
 
+<a href="https://guns.lol/golf_wang"><img src="https://files.catbox.moe/dsafa4.png" align="center" width="40%" height="50" alt="pronouns" title="analog"></a>
+
 
 <a href="https://www.youtube.com/watch?v=BmmMfZR8C80"><img src="https://files.catbox.moe/zsc712.png" width="60%" height="70%" align="center" alt="femt" title="just forget im someone's daughter">
 
