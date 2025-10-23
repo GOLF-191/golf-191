@@ -16,7 +16,7 @@
 <a href="https://rentry.co/dont-tap-da-glass"><img src="https://files.catbox.moe/bqxcdw.png" align="center" width="20%" height="50" alt="rentry" title="golden"></a>
 
 
-<a href="https://last-evil.straw.page"><img src="https://files.catbox.moe/zqdhcq.png" align="center" width="30%" height="50" alt="strawpage" title="au79"></a>
+<a href="https://bootleg-knockoff.straw.page"><img src="https://files.catbox.moe/zqdhcq.png" align="center" width="30%" height="50" alt="strawpage" title="au79"></a>
 
 
 <a href="https://pronouns.cc/@piggeonna"><img src="https://files.catbox.moe/653cia.png" align="center" width="40%" height="50" alt="pronouns" title="fish"></a>
