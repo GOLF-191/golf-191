@@ -13,12 +13,12 @@ im so lazy auguughhh
 
 <hr>
 
-<a href="https://piggeonna.atabook.org/"><img src="https://files.catbox.moe/fsf87h.png" align="center" height="50" alt="atabook" title="sandwitches"> </a>
+<a href="https://piggeonna.atabook.org/"><img src="https://files.catbox.moe/fsf87h.png" align="center" height="50" alt="atabook" title="IM"> </a>
 
-<a href="https://rentry.co/dont-tap-da-glass"><img src="https://files.catbox.moe/xwol08.png" align="center" height="50" alt="rentry" title="golden"></a>
+<a href="https://rentry.co/dont-tap-da-glass"><img src="https://files.catbox.moe/xwol08.png" align="center" height="50" alt="rentry" title="SENDING"></a>
 
-<a href="https://bootleg-knockoff.straw.page"><img src="https://files.catbox.moe/lwuede.png" align="center" height="50" alt="strawpage" title="au79"></a>
+<a href="https://bootleg-knockoff.straw.page"><img src="https://files.catbox.moe/lwuede.png" align="center" height="50" alt="strawpage" title="YOU"></a>
 
-<a href="https://pronouns.cc/@piggeonna"><img src="https://files.catbox.moe/gt6gta.png" align="center" height="50" alt="pronouns" title="fish"></a>
+<a href="https://pronouns.cc/@piggeonna"><img src="https://files.catbox.moe/gt6gta.png" align="center" height="50" alt="pronouns" title="TO"></a>
 
-<a href="https://guns.lol/golf_wang"><img src="https://files.catbox.moe/wld4qi.png" align="center" height="50" alt="pronouns" title="analog"></a>
+<a href="https://guns.lol/golf_wang"><img src="https://files.catbox.moe/wld4qi.png" align="center" height="50" alt="pronouns" title="HELL"></a>
