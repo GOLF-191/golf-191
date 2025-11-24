@@ -2,7 +2,7 @@
 
 currently remaking git layout<br>
 im so lazy auguughhh  
-links are a work in progress, everything but rentry is somewhat complete
+links are a work in progress, everything but rentry is barely finished
 
 <a href="https://www.youtube.com/watch?v=AF22vaGLziM"><img src="https://komarev.com/ghpvc/?username=piggeonna&color=52443f&amp;label=gang+members:" align="center" alt="profile views" title="just you left, it it?"/></a>
 
