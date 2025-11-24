@@ -1,7 +1,7 @@
 <div align=center>
 
 currently remaking git layout<br>
-im so lazy auguughhh
+im so lazy auguughhh  
 links are a work in progress, only rentry, straw, and ata are finished fully
 
 <a href="https://www.youtube.com/watch?v=AF22vaGLziM"><img src="https://komarev.com/ghpvc/?username=piggeonna&color=52443f&amp;label=gang+members:" align="center" alt="profile views" title="just you left, it it?"/></a>
