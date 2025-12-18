@@ -2,7 +2,7 @@
 
 yeah ok i give up  
 
-<a href="https://www.youtube.com/watch?v=tn6jAoVZPZc"><img src="https://komarev.com/ghpvc/?username=piggeonna&color=52443f&amp;label=gang+members:" align="center" alt="pv" title="scizodipshit"/></a>
+<a href="https://www.youtube.com/watch?v=tn6jAoVZPZc"><img src="https://komarev.com/ghpvc/?username=piggeonna&color=52443f&amp;label=neons:" align="center" alt="pv" title="scizodipshit"/></a>
 
 <a href="https://www.last.fm/user/piggeonna"><img src="https://lastfm-recently-played.vercel.app/api?user=piggeonna&show_user=header&footer_style=compact_stats&count=1&width=600&loved=true&header_style=normal&bg_color=52443f" alt="last.fm player yaya" title="yeah, just me"/></a>
 
